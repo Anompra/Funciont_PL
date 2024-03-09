@@ -1,0 +1,2 @@
+# Funciont_PL
+Ptqinvestor
